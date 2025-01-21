@@ -1,0 +1,2 @@
+The Pokémon game franchise, developed by Game Freak and published by Nintendo, is one of the most iconic and successful gaming series in history. It began in 1996 with the release of Pokémon Red and Green (Blue in international versions) for the Game Boy in Japan. The core gameplay revolves around capturing, training, and battling creatures called Pokémon, with the tagline "Gotta Catch 'Em All" becoming a global cultural phenomenon.
+
